@@ -32,4 +32,4 @@
 
 ## Step3: 使用代码即可
 
-## 仅供娱乐，如有任何问题请联系KandQwangkai@163.com
+## 仅供娱乐，如有任何问题请联系zaizwk@gmail.com
